@@ -1,6 +1,3 @@
 
 - ### 👋 Olá, me chamo **@GABRIELLYSARGI**
 
-
-
-
